@@ -44,5 +44,5 @@ Bluerose Packaging offers reliable and affordable **white corrugated boxes in Ch
 ---
 
 Secure your packaging with premium **White Corrugated Boxes** from Bluerose Packaging.  
-Visit [bluerosepackaging.com](https://www.bluerosepackaging.com/product-category/boxes/) to request a quote or place your order today.
+Visit [bluerosepackaging.com](https://www.bluerosepackaging.com/product/white-corrugated-boxes/) to request a quote or place your order today.
 
